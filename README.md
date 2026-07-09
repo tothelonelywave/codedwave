@@ -13,6 +13,8 @@
       <p align="center">
     (mostly about MikuTeto slops)
       <p align="center">
+        [ <a href="https://www.tiktok.com/@coded_wave">tik tok</a> ]
+         <p align="center">
 [ <a href="https://codedwave.atabook.org/">atabook</a> ]
   
   <br>
